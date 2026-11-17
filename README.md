@@ -5,8 +5,11 @@ Objetivo: Criar um segundo cérebro, baseado nos livros de Leonardo Da vince, e 
 
 Fontes:
 https://www.youtube.com/watch?v=3iGPclknn_8
+
 https://www.youtube.com/watch?v=8oOZMY3g9KE
+
 https://www.youtube.com/watch?v=LiNpV-T0C_w
+
 https://www.youtube.com/watch?v=IhQW9Tp0zT4
 
 Perguntas:
