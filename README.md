@@ -52,5 +52,5 @@ Leonardo atuou com destaque em múltiplos domínios do saber[1][14], dos quais d
 * (PDF) Leonardo da Vinci's Contributions from a Design Perspective - ResearchGate, [https://www.researchgate.net/publication/344388698\_Leonardo\_da\_Vinci's\_Contributions\_from\_a\_Design\_Perspective](https://www.google.com/url?sa=E&amp;q=https%3A%2F%2Fwww.researchgate.net%2Fpublication%2F344388698%5FLeonardo%5Fda%5FVinci's%5FContributions%5Ffrom%5Fa%5FDesign%5FPerspective)
 
 
-
+Acesso ao NotebookLM
 https://notebook.google.com/notebook/007218e0-0766-4264-97b2-e17d1aff1987
